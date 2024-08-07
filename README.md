@@ -8,4 +8,4 @@ Lastest Version
 
 Proxy/ProxyLess
 
-Contact : https://t.me/anisarino
+Contact : https://t.me/mariabosser
